@@ -6,7 +6,7 @@ This text guide and the video guide will assist you in being able to transfer a 
 If you enjoyed this, please subscribe to my YouTube channel where I post helpful guides for Trophies and achievement,s game play videos, and gaming tech tips. More tech tips coming soon.
 
 
-[Watch the video tutorial here](https://www.youtube.com/yourvideolink](https://youtu.be/bQ0_KOrb5H8?si=b722-DYnn_T4M-33)
+Watch the video tutorial here (https://www.youtube.com/yourvideolink](https://youtu.be/bQ0_KOrb5H8?si=b722-DYnn_T4M-33)
 
 
 
